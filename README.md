@@ -12,3 +12,5 @@ with me and join the EshanCreative MY Group Fan Association (EMGFA) to help the 
 [![WhatsApp](https://img.shields.io/badge/WhatsApp-Message-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/601176210944?text=Hello%2C%20I%20want%20to%20join%20EMGFA)
 
 [![Telegram](https://img.shields.io/badge/Telegram-Message-26A5E4?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/egisterrde2nd)
+
+<img width="1343" height="539" alt="image" src="https://github.com/user-attachments/assets/9013b471-5aea-415e-b283-b6bc8d2469a8" />
